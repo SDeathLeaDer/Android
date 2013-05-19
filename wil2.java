@@ -1,1 +1,0 @@
-pikando piedra 
